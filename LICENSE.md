@@ -1,4 +1,4 @@
-
+Experience hooked like never before with exclusive Script for hooked, the #1 Script. Includes unlimited stamina and anti-ban for unbeatable
 
 
 
